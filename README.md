@@ -1,1 +1,2 @@
 # SZAL-MI sajbbakdskdasd
+NO BITCHESNO BALLS AND NO FORTNITE BATTLE PASS!!?!?!?!?!?!
